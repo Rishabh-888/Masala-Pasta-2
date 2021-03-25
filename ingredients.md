@@ -18,7 +18,7 @@ __Other ingredients:__
 ½ tsp black pepper,
 2 tbsp tomato sauce,
 1 tsp pasta sauce,
-1 tsp mayonnaise
+1 tsp mayonnaise,
 ½ tsp garam masala,
 ½ tsp salt,
 2 tbsp corn,
