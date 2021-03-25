@@ -1,12 +1,12 @@
 ## Ingredients (for 1 person) :-
 
-For pasta cooking:
+__For pasta cooking:__
 
 1 cup penne pasta (or any pasta),
 water to boil,
 ½ tsp salt,
 
-Other ingredients:
+__Other ingredients:__
 
 1 tsp oil,
 2 tsp butter,
