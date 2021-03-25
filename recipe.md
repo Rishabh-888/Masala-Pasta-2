@@ -1,3 +1,5 @@
+**STEPS :-**
+
 1. Firstly, saute 1 inch ginger and 2 clove garlic in 1 tsp oil and 1 tsp butter.
 2. Further, saute ½ onion till they turn soft.
 3. Additionally add 1 cup tomato pulp and saute well.
