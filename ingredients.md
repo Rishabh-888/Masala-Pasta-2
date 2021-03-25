@@ -9,14 +9,16 @@ water to boil,
 Other ingredients:
 
 1 tsp oil,
-1 tsp butter,
+2 tsp butter,
 2 clove garlic (finely chopped),
 1 inch ginger (finely chopped),
 ½ onion (finely chopped),
 1 cup tomato pulp,
 ¼ tsp turmeric (haldi),
-½ tsp kashmiri red chilli powder,
+½ tsp black pepper,
 2 tbsp tomato sauce,
+1 tsp pasta sauce,
+1 tsp mayonnaise
 ½ tsp garam masala,
 ½ tsp salt,
 2 tbsp corn,
