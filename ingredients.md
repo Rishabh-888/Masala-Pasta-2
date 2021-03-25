@@ -1,4 +1,4 @@
-Ingredients :-
+## Ingredients (for 1 person) :-
 
 For pasta cooking:
 
